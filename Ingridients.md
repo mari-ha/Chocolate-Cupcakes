@@ -1,0 +1,1 @@
+1.cup all-purpose flour, cup granulated sugar, ½ cup cocoa powder, 1 teaspoons baking powder, ½ teaspoon baking soda, ½ teaspoon salt, ½ cup milk, ¼ cup vegetable oil, 1 large egg, 1 teaspoon vanilla, ½ cup coffee cooled
